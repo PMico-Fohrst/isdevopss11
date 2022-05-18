@@ -1,4 +1,4 @@
-Hi, this is Lourdes Mendoza!
+Hi, this is Paolo Mico!
 
 My Favorite Movie is Avatar (2009)
 My Favorite Band is Maroon 5
